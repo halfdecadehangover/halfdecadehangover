@@ -4,11 +4,8 @@ I am most always open to making new friends. Feel free to cuddle or hide behind 
 Keep in mind I am much less formal when you actually talk to me. That really just depends on my mood though.
 
 My favorite fandoms are:
-My own OCs duh
-Solarballs
-CountryHumans
-Guts and Blackpowder
-Roblox
-Many more
+My own OCs duh, Solarballs, CountryHumans, Guts and Blackpowder, Roblox, and Many more
+
+If you want to know more just ask
 
 ![](https://komarev.com/ghpvc/?username=halfdecadehangover)
