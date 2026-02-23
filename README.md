@@ -2,6 +2,8 @@
 
 Last updated: February 24, 2026.
 
+i mostly use github for nerdy stuff not ponytown but whatever.
+
 This is intended for PonyTown players. If you do not play PonyTown, you may disregard this message.
 
 🟢 = Likely online || 🌙 = Offtab or Semi-afk, whispering is recommended.. or I'm just tired || ⛔️ = AFK, please W2I
