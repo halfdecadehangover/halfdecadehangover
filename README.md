@@ -4,9 +4,7 @@ Last updated: February 24, 2026.
 
 This is intended for PonyTown players. If you do not play PonyTown, you may disregard this message.
 
-🟢 = Likely online
-🌙 = Offtab or Semi-afk, whispering is recommended.. or I'm just tired
-⛔️ = AFK, please W2I
+🟢 = Likely online || 🌙 = Offtab or Semi-afk, whispering is recommended.. or I'm just tired || ⛔️ = AFK, please W2I
 
 - I am almost always open to making new friends. I won't be nice to you if you're not nice to me. 
 
@@ -21,6 +19,6 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 My favorite fandoms are:
 My own OCs duh, Solarballs, CountryHumans, Guts and Blackpowder, Roblox, and Many more
 
-If you want to know more just ask
+If you want to know more just ask.
 
 ![](https://komarev.com/ghpvc/?username=halfdecadehangover)
