@@ -2,7 +2,7 @@
 
 Last updated: February 27, 2026.
 
-### I know you like big numbers.
+### I know you like big numbers 👀👀👀
 
 I mostly use github for nerdy stuff not ponytown but whatever
 
