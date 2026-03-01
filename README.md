@@ -21,7 +21,7 @@ DNI: the Basic DNI in [this](https://truly-basic-dni.carrd.co/), fakeclaimers, s
 
 I am [peacefic](https://peacefic.carrd.co/).
 
-Things I like...: My own OCs duh, planes, tanks, guns, the sabre, American Revolution, CountryHumans, Guts and Blackpowder, PHIGHTING!, and many more.
+Things I like...: My own OCs duh, planes, tanks, guns, sabres, American Revolution, CountryHumans, Guts and Blackpowder, PHIGHTING!, and many more.
 
 If you want to know more just ask. ok? ok
 
