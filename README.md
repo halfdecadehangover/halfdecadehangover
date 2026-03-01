@@ -16,11 +16,11 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 - Feel free to take inspo, just try to use your own creavity okay? It's more fun that way.
 - Please don't post me on Pinterest unless I allowed you to. Idc if its like a screenshot that has me but just don't post one of me specifically I'd be embarrassed
 
-Basic DNI in [this](https://truly-basic-dni.carrd.co/) ... 
+DNI: Basic DNI in [this](https://truly-basic-dni.carrd.co/) ... 
+
 I am [peacefic](https://peacefic.carrd.co/).
 
-Things I like...:
-My own OCs duh, American Revolution, CountryHumans, Guts and Blackpowder, PHIGHTING!, and many more...
+Things I like...: My own OCs duh, American Revolution, CountryHumans, Guts and Blackpowder, PHIGHTING!, and many more.
 
 If you want to know more just ask. ok? ok
 
