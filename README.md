@@ -16,7 +16,7 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 - Feel free to take inspo, just try to use your own creavity okay? It's more fun that way.
 - Please don't post me on Pinterest unless I allowed you to. Idc if its like a screenshot that has me but just don't post one of me specifically I'd be embarrassed
 
-DNI: the Basic DNI in [this](https://truly-basic-dni.carrd.co/), system exclusionists ...
+DNI: the Basic DNI in [this](https://truly-basic-dni.carrd.co/), fakeclaimers, system exclusionists ...
 
 I am [peacefic](https://peacefic.carrd.co/).
 
