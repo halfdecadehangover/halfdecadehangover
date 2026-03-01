@@ -11,6 +11,7 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 🟢 = Likely online? || 🌙 = Offtab, Semi-afk, or tired... whispering is recommended || ⛔️ = AFK, please W2I
 
 - I am open to making new friends. Just be nice ok
+- If my pony is sleeping I am most likely AFK or Offtab!
 - Feel free to cuddle or hide behind me, I do not mind. Best to ask first if I'm with a friend.
 - I recommend you to whisper to interact because I'm mostly offtab or semi-afk,,,
 - Feel free to take inspo, just try to use your own creavity okay? It's more fun that way.
