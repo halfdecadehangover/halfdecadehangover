@@ -1,6 +1,6 @@
 ## Greetings!
 
-Last updated: March 3, 2026.
+Last updated: March 8, 2026.
 
 ### I know you like big numbers 👀👀👀
 
@@ -12,6 +12,7 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 
 - I am open to making new friends. Just be nice ok
 - If my pony is sleeping I am most likely AFK or Offtab!
+- PLEASE ask before doing serious roleplays with me
 - Feel free to cuddle or hide behind me, I do not mind. Best to ask first if I'm with a friend.
 - I recommend you to whisper to interact because I'm mostly offtab or semi-afk,,,
 - Feel free to take inspo, just try to use your own creavity okay? It's more fun that way.
@@ -25,6 +26,6 @@ Eliza is my [wavership](https://lgbtqia.wiki/wiki/Wavership) partner  :]
 
 Things I like...: My own OCs duh, planes, tanks, guns, sabres, American Revolution, CountryHumans, Guts and Blackpowder, PHIGHTING!, and many more.
 
-If you want to know more just ask. ok? ok
+If you want to know more just ask. ok? ok.. remember to be nice. Social media made y'all way too comfortable with disrespecting people and not getting punched in the face for it.
 
 ![](https://komarev.com/ghpvc/?username=halfdecadehangover)
