@@ -1,6 +1,6 @@
 ## Greetings!
 
-Last updated: March 8, 2026.
+Last updated: March 11, 2026.
 
 ### I know you like big numbers 👀👀👀
 
@@ -11,12 +11,12 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 🟢 = Likely online? || 🌙 = Offtab, Semi-afk, or tired... whispering is recommended || ⛔️ = AFK, please W2I
 
 - I am open to making new friends. Just be nice ok
-- If my pony is sleeping I am most likely AFK or Offtab!
-- PLEASE ask before doing serious roleplays with me
+- If my pony is sleeping I am most likely AFK or Offtab
+- PLEASE ask before doing serious roleplays with me or i will prob get scared and scurry away
 - Feel free to cuddle or hide behind me, I do not mind. Best to ask first if I'm with a friend.
 - I recommend you to whisper to interact because I'm mostly offtab or semi-afk,,,
 - Feel free to take inspo, just try to use your own creavity okay? It's more fun that way.
-- Please don't post me on Pinterest unless I allowed you to. Idc if its like a screenshot that has me but just don't post one of me specifically I'd be embarrassed
+- Please don't post me on Pinterest or any app unless I allowed you to. Idc if its like a screenshot that has me in it but just don't post one of me specifically I'm too embarrassed
 
 ### DNI: the Basic DNI in [this](https://truly-basic-dni.carrd.co/), fakeclaimers, system exclusionists ...
 
