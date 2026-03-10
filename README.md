@@ -13,6 +13,7 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 - I am open to making new friends. Just be nice ok
 - If my pony is sleeping I am most likely AFK or Offtab
 - PLEASE ask before doing serious roleplays with me or i will prob get scared and scurry away
+- Uhhh I am fine with jokingly flirting MOST of the times but i'd appreciate if you ask first
 - Feel free to cuddle or hide behind me, I do not mind. Best to ask first if I'm with a friend.
 - I recommend you to whisper to interact because I'm mostly offtab or semi-afk,,,
 - Feel free to take inspo, just try to use your own creavity okay? It's more fun that way.
