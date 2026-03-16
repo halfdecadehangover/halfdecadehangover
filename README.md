@@ -1,6 +1,6 @@
 ## Greetings!
 
-Last updated: March 11, 2026.
+Date last modified: March 16, 2026.
 
 ### I know you like big numbers 👀👀👀
 
@@ -10,23 +10,24 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 
 🟢 = Likely online? || 🌙 = Offtab, Semi-afk, or tired... whispering is recommended || ⛔️ = AFK, please W2I
 
-- I am open to making new friends. Just be nice ok
 - If my pony is sleeping I am most likely AFK or Offtab
-- PLEASE ask before doing serious roleplays with me or i will prob get scared and scurry away
+- PLEASE ask before doing serious roleplays with me or uhhh i will prob get scared and scurry away
 - Uhhh I am fine with jokingly flirting MOST of the times but i'd appreciate if you ask first
 - Feel free to cuddle or hide behind me, I do not mind. Best to ask first if I'm with a friend.
 - I recommend you to whisper to interact because I'm mostly offtab or semi-afk,,,
-- Feel free to take inspo, just try to use your own creavity okay? It's more fun that way.
+- Feel free to take inspo, just try to use your own creativity okay? It's more fun that way.
 - Please don't post me on Pinterest or any app unless I allowed you to. Idc if its like a screenshot that has me in it but just don't post one of me specifically I'm too embarrassed
 
-### DNI: the Basic DNI in [this](https://truly-basic-dni.carrd.co/), fakeclaimers, system exclusionists ...
+### DNI: the Basic DNI in [this](https://truly-basic-dni.carrd.co/), fakeclaimers, sysmedicalists/system exclusionists ...
 
 I am [peacefic](https://peacefic.carrd.co/).
 
-Eliza is my [wavership](https://lgbtqia.wiki/wiki/Wavership) partner  :]
+I, or should i say, We are [plural](https://pluralpedia.org/w/Plurality) and we will *not* tolerate any discrimination. I am open to making new friends. Just be nice! Social media made y'all way too comfortable with disrespecting people and not getting punched in the face for it.
 
-Things I like...: My own OCs duh, planes, tanks, guns, sabres, American Revolution, CountryHumans, Guts and Blackpowder, PHIGHTING!, and many more.
+Eliza is our [wavership](https://lgbtqia.wiki/wiki/Wavership) partner  :]
 
-If you want to know more just ask. ok? ok.. remember to be nice. Social media made y'all way too comfortable with disrespecting people and not getting punched in the face for it.
+Things I like: My own OCs duh, planes, tanks, guns, sabres, American Revolution, CountryHumans, Guts and Blackpowder, PHIGHTING!, and many more.
+
+If you want to know more just ask. ok? ok..
 
 ![](https://komarev.com/ghpvc/?username=halfdecadehangover)
