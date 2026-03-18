@@ -20,6 +20,7 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 ![](https://64.media.tumblr.com/47ed1dc384f90aa32db026c68e6bcebe/14362a0ab4b449ed-4e/s1280x1920/c8ba420c52c3cf3aac10acefbd46a1a475373e1a.pnj)
 
 ## About Me
+
 　✦ I am [peacefic](https://peacefic.carrd.co/).
 
 　✦ I, or should i say, We are [plural](https://pluralpedia.org/w/Plurality) and we will *not* tolerate any discrimination. I am open to making new friends. Just be nice! Social media made y'all way too comfortable with disrespecting people and not getting punched in the face for it.
@@ -29,6 +30,8 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 　✦ Interests: My own OCs duh, planes, tanks, guns, sabres, American Revolution, England, Kingdom of France, CountryHumans, Guts and Blackpowder, PHIGHTING!, and many more.
 
 　✦ If you want to know more just ask. ok? ok..
+ 
+　✦ Check out this cool carrd: https://endoresource.carrd.co/#
 
 **Please Do Not Follow If: the Basic DNI in [this](https://truly-basic-dni.carrd.co/), fakeclaimers, sysmedicalists/system exclusionists ...**
 
