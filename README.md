@@ -1,12 +1,13 @@
 ## Greetings!
 Date last modified: March 18, 2026.
+
 Dividers by [rmstitanics](https://www.tumblr.com/rmstitanics?source=share) on Tumblr
 
 This is intended for PonyTown players. If you do not play PonyTown, you may disregard this.
 
 ![](https://64.media.tumblr.com/67f2556f6dca739db25b4b6cec09e732/4c49cf69d9efb6d6-17/s1280x1920/8e5a5e57f34d8a6c5c9a1deec377b5c79ac46577.pnj)
 
-🟢 = Likely online? || 🌙 = Offtab, Semi-afk, or tired... whispering is recommended || ⛔️ = AFK, please W2I
+### 🟢 = Likely online? || 🌙 = Offtab, Semi-afk, or tired... whispering is recommended || ⛔️ = AFK, please W2I
 
  - If my pony is sleeping I am most likely AFK or Offtab
  - PLEASE ask before doing serious roleplays with me or uhhh i will prob get scared and scurry away
@@ -18,6 +19,7 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 
 ![](https://64.media.tumblr.com/47ed1dc384f90aa32db026c68e6bcebe/14362a0ab4b449ed-4e/s1280x1920/c8ba420c52c3cf3aac10acefbd46a1a475373e1a.pnj)
 
+## About Me
 　✦ I am [peacefic](https://peacefic.carrd.co/).
 
 　✦ I, or should i say, We are [plural](https://pluralpedia.org/w/Plurality) and we will *not* tolerate any discrimination. I am open to making new friends. Just be nice! Social media made y'all way too comfortable with disrespecting people and not getting punched in the face for it.
