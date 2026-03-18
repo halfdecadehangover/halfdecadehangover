@@ -1,12 +1,13 @@
 ## Greetings!
-
 Date last modified: March 18, 2026.
 
-### I know you like big numbers 👀👀👀
-
-I mostly use github for nerdy stuff not ponytown but whatever
-
 This is intended for PonyTown players. If you do not play PonyTown, you may disregard this.
+
+
+
+![](https://64.media.tumblr.com/08212e36e9dd1487a9cacfda63346263/706c2a10c97ee0cf-28/s640x960/fdde59bccda562660462137c9866e711b7aeaef5.pnj)
+
+
 
 🟢 = Likely online? || 🌙 = Offtab, Semi-afk, or tired... whispering is recommended || ⛔️ = AFK, please W2I
 
@@ -17,8 +18,8 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 - I recommend you to whisper to interact because I'm mostly offtab or semi-afk,,,
 - Feel free to take inspo, just try to use your own creativity okay? It's more fun that way.
 - Please don't post me on Pinterest or any app unless I allowed you to. Idc if its like a screenshot that has me in it but just don't post one of me specifically I'm too embarrassed
-
-### DNI: the Basic DNI in [this](https://truly-basic-dni.carrd.co/), fakeclaimers, sysmedicalists/system exclusionists ...
+  
+![](https://64.media.tumblr.com/08212e36e9dd1487a9cacfda63346263/706c2a10c97ee0cf-28/s640x960/fdde59bccda562660462137c9866e711b7aeaef5.pnj)
 
 I am [peacefic](https://peacefic.carrd.co/).
 
@@ -29,5 +30,9 @@ Eliza is our [wavership](https://lgbtqia.wiki/wiki/Wavership) partner  :]
 Things I like: My own OCs duh, planes, tanks, guns, sabres, American Revolution, CountryHumans, Guts and Blackpowder, PHIGHTING!, and many more.
 
 If you want to know more just ask. ok? ok..
+
+### Please Do Not Follow If: the Basic DNI in [this](https://truly-basic-dni.carrd.co/), fakeclaimers, sysmedicalists/system exclusionists ...
+
+I know DNI lists dont always work. I do not block people often but I am not afraid to do so.
 
 ![](https://komarev.com/ghpvc/?username=halfdecadehangover)
