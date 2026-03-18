@@ -3,7 +3,7 @@ Date last modified: March 18, 2026.
 
 This is intended for PonyTown players. If you do not play PonyTown, you may disregard this.
 
-![](https://64.media.tumblr.com/08212e36e9dd1487a9cacfda63346263/706c2a10c97ee0cf-28/s640x960/fdde59bccda562660462137c9866e711b7aeaef5.pnj)
+![](https://64.media.tumblr.com/ed30a999523f0fcebe60b59850e58408/81a07c5c3126034b-ed/s640x960/25626367d750b44177037e0269bca04d22866d51.pnj)
 
 
 🟢 = Likely online? || 🌙 = Offtab, Semi-afk, or tired... whispering is recommended || ⛔️ = AFK, please W2I
@@ -16,7 +16,7 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
  - Feel free to take inspo, just try to use your own creativity okay? It's more fun that way.
  - Please don't post me on Pinterest or any app unless I allowed you to. Idc if its like a screenshot that has me in it but just don't post one of me specifically I'm too embarrassed
   
-![](https://64.media.tumblr.com/08212e36e9dd1487a9cacfda63346263/706c2a10c97ee0cf-28/s640x960/fdde59bccda562660462137c9866e711b7aeaef5.pnj)
+![](https://64.media.tumblr.com/ed30a999523f0fcebe60b59850e58408/81a07c5c3126034b-ed/s640x960/25626367d750b44177037e0269bca04d22866d51.pnj)
 
 　✦ I am [peacefic](https://peacefic.carrd.co/).
 
