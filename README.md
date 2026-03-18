@@ -1,10 +1,10 @@
 ## Greetings!
 Date last modified: March 18, 2026.
+Dividers by [rmstitanics](https://www.tumblr.com/rmstitanics?source=share) on Tumblr
 
 This is intended for PonyTown players. If you do not play PonyTown, you may disregard this.
 
-![](https://64.media.tumblr.com/ed30a999523f0fcebe60b59850e58408/81a07c5c3126034b-ed/s640x960/25626367d750b44177037e0269bca04d22866d51.pnj)
-
+![](https://64.media.tumblr.com/67f2556f6dca739db25b4b6cec09e732/4c49cf69d9efb6d6-17/s1280x1920/8e5a5e57f34d8a6c5c9a1deec377b5c79ac46577.pnj)
 
 🟢 = Likely online? || 🌙 = Offtab, Semi-afk, or tired... whispering is recommended || ⛔️ = AFK, please W2I
 
@@ -15,8 +15,8 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
  - I recommend you to whisper to interact because I'm mostly offtab or semi-afk,,,
  - Feel free to take inspo, just try to use your own creativity okay? It's more fun that way.
  - Please don't post me on Pinterest or any app unless I allowed you to. Idc if its like a screenshot that has me in it but just don't post one of me specifically I'm too embarrassed
-  
-![](https://64.media.tumblr.com/ed30a999523f0fcebe60b59850e58408/81a07c5c3126034b-ed/s640x960/25626367d750b44177037e0269bca04d22866d51.pnj)
+
+![](https://64.media.tumblr.com/47ed1dc384f90aa32db026c68e6bcebe/14362a0ab4b449ed-4e/s1280x1920/c8ba420c52c3cf3aac10acefbd46a1a475373e1a.pnj)
 
 　✦ I am [peacefic](https://peacefic.carrd.co/).
 
