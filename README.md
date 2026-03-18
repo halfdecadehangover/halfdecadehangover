@@ -24,13 +24,13 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 
 　✦ I, or should i say, We are [plural](https://pluralpedia.org/w/Plurality) and we will *not* tolerate any discrimination. I am open to making new friends. Just be nice! Social media made y'all way too comfortable with disrespecting people and not getting punched in the face for it.
 
-　✦ Eliza is our [wavership](https://lgbtqia.wiki/wiki/Wavership) partner  :]
+　✦ In an [aripluric](https://www.tumblr.com/plural-labels/616840490862723072/aripluric?source=share) [wavership](https://lgbtqia.wiki/wiki/Wavership) relationship with Eliza  :]
 
 　✦ Interests: My own OCs duh, planes, tanks, guns, sabres, American Revolution, England, Kingdom of France, CountryHumans, Guts and Blackpowder, PHIGHTING!, and many more.
 
 　✦ If you want to know more just ask. ok? ok..
 
-### Please Do Not Follow If: the Basic DNI in [this](https://truly-basic-dni.carrd.co/), fakeclaimers, sysmedicalists/system exclusionists ...
+**Please Do Not Follow If: the Basic DNI in [this](https://truly-basic-dni.carrd.co/), fakeclaimers, sysmedicalists/system exclusionists ...**
 
 I know DNI lists dont always work. I do not block people often but I am not afraid to do so.
 
