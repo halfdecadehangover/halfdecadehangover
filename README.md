@@ -1,12 +1,12 @@
 ## Greetings!
 
-Date last modified: March 16, 2026.
+Date last modified: March 18, 2026.
 
 ### I know you like big numbers 👀👀👀
 
 I mostly use github for nerdy stuff not ponytown but whatever
 
-This is intended for PonyTown players. If you do not play PonyTown, you may disregard this message.
+This is intended for PonyTown players. If you do not play PonyTown, you may disregard this.
 
 🟢 = Likely online? || 🌙 = Offtab, Semi-afk, or tired... whispering is recommended || ⛔️ = AFK, please W2I
 
