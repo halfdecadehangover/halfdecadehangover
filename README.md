@@ -34,4 +34,4 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 
 I know DNI lists dont always work. I do not block people often but I am not afraid to do so.
 
-![](https://komarev.com/ghpvc/?username=halfdecadehangover&color=7B1818&style=flat-square&base=260)
+![](https://komarev.com/ghpvc/?username=halfdecadehangover&color=7B1818&style=flat-square)
