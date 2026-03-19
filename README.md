@@ -15,7 +15,7 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
  - Uhhh I am fine with jokingly flirting MOST of the times but i'd appreciate if you ask first ?? if you won't flirt with a stranger randomly irl then you probably shouldn't flirt with me randomly?
  - Feel free to cuddle or hide behind me, I do not mind. Best to ask first if I'm with a friend.
  - Feel free to take inspo, just try to use your own creativity okay? It's more fun that way.
- - Please don't post me on Pinterest or any app unless I allowed you to. Idc if its like a screenshot that has me in it but just don't post one of me specifically I'm too embarrassed
+ - I'd prefer if you ask first before screenshotting my skin specifically and posting it on an app like Pinterest or whatever. Idrc if its like a screenshot that has me in it but just don't post one of me specifically I'm too embarrassed
 
 ![](https://64.media.tumblr.com/47ed1dc384f90aa32db026c68e6bcebe/14362a0ab4b449ed-4e/s1280x1920/c8ba420c52c3cf3aac10acefbd46a1a475373e1a.pnj)
 
