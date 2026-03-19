@@ -1,4 +1,4 @@
-## Greetings!
+## ❝ Wait, wait! You can't leave us here, bloody untie us! ❞
 Date last modified: March 18, 2026.
 
 Dividers by [rmstitanics](https://www.tumblr.com/rmstitanics?source=share) on Tumblr
@@ -13,13 +13,13 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
  - PLEASE ask before doing serious roleplays with me or uhhh i will prob get scared and scurry away
  - Uhhh I am fine with jokingly flirting MOST of the times but i'd appreciate if you ask first
  - Feel free to cuddle or hide behind me, I do not mind. Best to ask first if I'm with a friend.
- - I recommend you to whisper to interact because I'm mostly offtab or semi-afk
+ - I recommend you to whisper to interact because if i am alone i am most likely offtab or semi-afk
  - Feel free to take inspo, just try to use your own creativity okay? It's more fun that way.
  - Please don't post me on Pinterest or any app unless I allowed you to. Idc if its like a screenshot that has me in it but just don't post one of me specifically I'm too embarrassed
 
 ![](https://64.media.tumblr.com/47ed1dc384f90aa32db026c68e6bcebe/14362a0ab4b449ed-4e/s1280x1920/c8ba420c52c3cf3aac10acefbd46a1a475373e1a.pnj)
 
-## About Me
+## About Me 
 
 　✦ I am [peacefic](https://peacefic.carrd.co/).
 
