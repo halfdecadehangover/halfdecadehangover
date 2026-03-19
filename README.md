@@ -24,6 +24,8 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 　✦ I am [peacefic](https://peacefic.carrd.co/).
 
 　✦ I, or should i say, We are [plural](https://pluralpedia.org/w/Plurality) and we will *not* tolerate any discrimination. I am open to making new friends. Just be nice! Social media made y'all way too comfortable with disrespecting people and not getting punched in the face for it.
+ 
+  ✦ English is not my first language. Please excuse any potential errors and kindly let me know.
 
 　✦ In an [aripluric](https://www.tumblr.com/plural-labels/616840490862723072/aripluric?source=share) [wavership](https://lgbtqia.wiki/wiki/Wavership) relationship with Eliza  :]
 
