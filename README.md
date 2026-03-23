@@ -16,7 +16,7 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
  - Feel free to cuddle or hide behind me, I do not mind. Best to ask first if I'm with a friend.
  - Feel free to take inspo, just try to use your own creativity okay? It's more fun that way.
  - I'd prefer if you ask first before screenshotting my skin specifically and posting it on an app like Pinterest or whatever. Idrc if its like a screenshot that has me in it but just don't post one of me specifically I'm too embarrassed
- - SOME OF MY SKINS KEEP LOOKING A BIT TOO VIBRANT FOR ME BECAUSE I MADE THEM ON PC AND MY PC'S BRIGHTNESS IS WEIRD
+ - SOME OF MY SKINS KEEP LOOKING A BIT TOO VIBRANT FOR ME BECAUSE I MADE THEM ON PC AND MY PC'S BRIGHTNESS IS WEIRD. I DID NOT MEAN FOR IT TO. but i dont really mind it
 
 ![](https://64.media.tumblr.com/47ed1dc384f90aa32db026c68e6bcebe/14362a0ab4b449ed-4e/s1280x1920/c8ba420c52c3cf3aac10acefbd46a1a475373e1a.pnj)
 
