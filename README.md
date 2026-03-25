@@ -7,7 +7,7 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 
 ![](https://64.media.tumblr.com/67f2556f6dca739db25b4b6cec09e732/4c49cf69d9efb6d6-17/s1280x1920/8e5a5e57f34d8a6c5c9a1deec377b5c79ac46577.pnj)
 
-### 🟢 = Likely online? || 🌙 = Offtab, Semi-afk, or tired... whispering is recommended || ⛔️ = AFK, please W2I
+### 🟢 = Likely online? || 🌙 = Offtab, Semi-afk, or tired... whispering is recommended || ⛔️ = AFK, please W2I, or i just dont have much time to chat lol
 
  - I recommend you to whisper to interact because if I am not talking to someone, i am most likely offtab or semi-afk.
  - Feel free to cuddle or hide behind me, I do not mind. Best to ask first if I'm with a friend.
