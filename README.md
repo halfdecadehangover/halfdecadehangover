@@ -1,5 +1,5 @@
 ## ❝ Wait, wait! You can't leave us here, bloody untie us! ❞
-Date last modified: March 26, 2026.
+Date last modified: April 8, 2026.
 
 Dividers by [rmstitanics](https://www.tumblr.com/rmstitanics?source=share) on Tumblr
 
@@ -11,13 +11,14 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 
  - I recommend you to whisper to interact because if I am not talking to someone, I am most likely offtab or semi-afk.
  - Feel free to cuddle or hide behind me, I do not mind. Best to ask first if I'm with a friend.
- - PLEASE ask before doing serious roleplays with me or uhhh i will prob get scared and scurry away!
+ - Ask before doing serious roleplays with me or uhhh i will prob get scared and scurry away!
  - Ship roleplays are acceptable, but don't expect me to always go along with them especially if i don't ship it or if we're not friends.
+ - Please don't expect my CountryHumans AU to be the same as yours. I am so tired.
  - Uhhh I am fine with jokingly flirting MOST of the times but i'd appreciate if you ask first ?? if you won't flirt with a stranger randomly irl then you probably shouldn't flirt with me randomly?
- - I'm okay with joke insults but please if you just met me it is best to ask first?
+ - I'm okay with joke insults but if you only just met me it is best to ask first?
  - Feel free to take inspo, just try to use your own creativity okay? It's more fun that way.
  - I'd prefer if you ask first before screenshotting my skin specifically and posting it on an app like Pinterest or whatever. Idrc if its like a screenshot that has me in it but just don't post one of me specifically I'm too embarrassed
- - SOME OF MY SKINS KEEP LOOKING A BIT TOO VIBRANT FOR ME BECAUSE I MADE THEM ON PC AND MY PC'S BRIGHTNESS IS WEIRD. I DID NOT MEAN FOR IT TO. but i dont really mind it
+ - SOME OF MY SKINS KEEP LOOKING A BIT TOO VIBRANT FOR ME BECAUSE I MADE THEM ON PC AND MY PC'S BRIGHTNESS IS WEIRD. I DID NOT MEAN FOR IT TO. but tbh i dont really mind it
 
 ![](https://64.media.tumblr.com/47ed1dc384f90aa32db026c68e6bcebe/14362a0ab4b449ed-4e/s1280x1920/c8ba420c52c3cf3aac10acefbd46a1a475373e1a.pnj)
 
