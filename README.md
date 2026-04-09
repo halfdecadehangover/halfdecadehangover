@@ -1,5 +1,5 @@
 ## ❝ Wait, wait! You can't leave us here, bloody untie us! ❞
-Date last modified: April 8, 2026.
+Date last modified: April 9, 2026.
 
 Dividers by [rmstitanics](https://www.tumblr.com/rmstitanics?source=share) on Tumblr
 
@@ -38,7 +38,7 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
  
 　✦ Check out this cool carrd: https://endoresource.carrd.co/#
 
-**Please Do Not Follow If: the Basic DNI in [this](https://truly-basic-dni.carrd.co/), fakeclaimers, sysmedicalists/system exclusionists ...**
+**Please Do Not Follow If: the Basic DNI in [this](https://truly-basic-dni.carrd.co/), anti-alterhumanity, fakeclaimers, sysmedicalists/system exclusionists ...**
 
 I know DNI lists dont always work. I do not block people often but I am not afraid to do so.
 
