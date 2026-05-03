@@ -27,10 +27,14 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 ### About Me 
 
 　✦ I am [peacefic](https://peacefic.carrd.co/).
+ 
 　✦ I, or should i say, We are [plural](https://pluralpedia.org/w/Plurality). I am open to making new friends. Just be nice! Social media made y'all way too comfortable with disrespecting people and not getting punched in the face for it
+ 
 　✦ English is not my first language. Please excuse any potential errors and kindly let me know.
+ 
 　✦ Interests: My own OCs duh, planes, tanks, guns, sabres, American Revolution, England, Kingdom of France, CountryHumans, Guts and Blackpowder, PHIGHTING!, and many more.
 　✦ If you want to know more just ask. ok? ok..
+ 
 　✦ Check out this cool carrd: https://endoresource.carrd.co/#
  
 **Please Do Not Follow If: the Basic DNI in [this](https://truly-basic-dni.carrd.co/), anti-alterhumanity, fakeclaimers, sysmedicalists/system exclusionists ...**
