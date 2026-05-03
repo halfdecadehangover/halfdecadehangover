@@ -1,5 +1,5 @@
 ## ❝ Wait, wait! You can't leave us here, bloody untie us! ❞
-Date last modified: April 24, 2026.
+Date last modified: May 3, 2026.
 
 Dividers by [rmstitanics](https://www.tumblr.com/rmstitanics?source=share) on Tumblr
 
@@ -11,7 +11,6 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 
 ### BYI ; 
 
- - I don't really greet people first im sorry mooties im just shy, i usually only greet people i'm close to
  - I recommend you to whisper to interact because if I am not talking to someone, I am most likely offtab or semi-afk.
  - Feel free to cuddle or hide behind me, I do not mind. Best to ask first if I'm with a friend.
  - Ask before doing serious roleplays with me or uhhh i will prob get scared and scurry away!
@@ -21,23 +20,19 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
  - I'm okay with joke insults but if you only just met me it is best to ask first?
  - Feel free to take inspo, just try to use your own creativity okay? It's more fun that way.
  - I'd prefer if you ask first before screenshotting my skin specifically and posting it on an app like Pinterest or whatever. Idrc if its like a screenshot that has me in it but just don't post one of me specifically I'm too embarrassed
+ -  I don't really greet my mutuals first, im just shy, i usually only greet people i'm close to!!! it's okay if you greet me
 
 ![](https://64.media.tumblr.com/47ed1dc384f90aa32db026c68e6bcebe/14362a0ab4b449ed-4e/s1280x1920/c8ba420c52c3cf3aac10acefbd46a1a475373e1a.pnj)
 
 ### About Me 
 
 　✦ I am [peacefic](https://peacefic.carrd.co/).
-
-　✦ I, or should i say, We are [plural](https://pluralpedia.org/w/Plurality) and we will *not* tolerate any discrimination. I am open to making new friends. Just be nice! Social media made y'all way too comfortable with disrespecting people and not getting punched in the face for it.
- 
+　✦ I, or should i say, We are [plural](https://pluralpedia.org/w/Plurality). I am open to making new friends. Just be nice! Social media made y'all way too comfortable with disrespecting people and not getting punched in the face for it
 　✦ English is not my first language. Please excuse any potential errors and kindly let me know.
-
 　✦ Interests: My own OCs duh, planes, tanks, guns, sabres, American Revolution, England, Kingdom of France, CountryHumans, Guts and Blackpowder, PHIGHTING!, and many more.
-
 　✦ If you want to know more just ask. ok? ok..
- 
 　✦ Check out this cool carrd: https://endoresource.carrd.co/#
-
+ 
 **Please Do Not Follow If: the Basic DNI in [this](https://truly-basic-dni.carrd.co/), anti-alterhumanity, fakeclaimers, sysmedicalists/system exclusionists ...**
 
 I know DNI lists dont always work. I do not block people often but I am not afraid to do so.
