@@ -1,5 +1,5 @@
 ## ❝ Wait, wait! You can't leave us here, bloody untie us! ❞
-Date last modified: May 4, 2026.
+Date last modified: May 21, 2026.
 
 Dividers by [rmstitanics](https://www.tumblr.com/rmstitanics?source=share) on Tumblr
 
@@ -15,11 +15,10 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
  - Feel free to cuddle or hide behind me, I do not mind. Best to ask first if I'm with a friend.
  - Ask before doing serious roleplays with me
  - Ship roleplays are acceptable, but don't expect me to always go along with them
- - Please don't expect my CountryHumans AU to be the same as yours. I am so tired.
- - I am fine with jokingly flirting MOST of the times but i'd appreciate if you ask first? if you won't flirt with a stranger randomly irl then you probably shouldn't flirt with me randomly?
- - I'm okay with joke insults but if you only just met me it is best to ask first
+ - I am fine with jokingly flirting MOST of the times but i'd appreciate if you ask first..
+ - I'm okay with joke insults but it is best to ask first
  - Feel free to take inspo, just try to use your own creativity okay? It's more fun that way.
- - I'd prefer if you ask first before screenshotting my skin specifically and posting it on an app like Pinterest or whatever. Idrc if its like a screenshot that has me in it but just don't post one of me specifically I'm too embarrassed
+ - I'd prefer if you ask first before screenshotting my skin specifically and posting it on an app like Pinterest or whatever
  -  I don't really greet my mutuals first, im just shy, i usually only greet people i'm close to!!! it's okay if you greet me
 
 ![](https://64.media.tumblr.com/47ed1dc384f90aa32db026c68e6bcebe/14362a0ab4b449ed-4e/s1280x1920/c8ba420c52c3cf3aac10acefbd46a1a475373e1a.pnj)
