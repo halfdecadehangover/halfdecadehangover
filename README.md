@@ -8,9 +8,9 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 ![](https://64.media.tumblr.com/19d62cea0391315667fb022be333da1b/243b2ba31def5e4c-ec/s1280x1920/22297c15cd9930e04581df18deccdecd2945eced.pnj)
 ![](https://64.media.tumblr.com/67f2556f6dca739db25b4b6cec09e732/4c49cf69d9efb6d6-17/s1280x1920/8e5a5e57f34d8a6c5c9a1deec377b5c79ac46577.pnj)
 
-**🟢 = Likely online!
-🌙 = Offtab, Semi-afk, or tired... whispering is recommended
-⛔️ = AFK  or busy, please W2I**
+- ***🟢 = Likely online!***
+- ***🌙 = Offtab, Semi-afk, or tired... whispering is recommended***
+- ***⛔️ = AFK  or busy, please W2I***
 
 ### BYI ; 
 
