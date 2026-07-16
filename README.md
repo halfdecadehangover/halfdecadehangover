@@ -1,7 +1,7 @@
 ### ❝ And if I'm meant to be alone, please take away my desire to be loved. ❞
 Date last modified: July 17, 2026.
 
-Dividers by [rmstitanics](https://www.tumblr.com/rmstitanics?source=share) and [dollywons](https://www.tumblr.com/dollywons?source=share) on Tumblr
+Dividers by [dollywons](https://www.tumblr.com/dollywons?source=share) and [rmstitanics](https://www.tumblr.com/rmstitanics?source=share) and on Tumblr
 
 This is intended for PonyTown players. If you do not play PonyTown, you may disregard this.
 
