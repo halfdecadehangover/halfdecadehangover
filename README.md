@@ -1,5 +1,5 @@
 ### ❝ And if I'm meant to be alone, please take away my desire to be loved. ❞
-Date last modified: July 17, 2026.
+Date last modified: August 7, 2026.
 
 Dividers by [dollywons](https://www.tumblr.com/dollywons?source=share) and [rmstitanics](https://www.tumblr.com/rmstitanics?source=share) and on Tumblr
 
@@ -8,7 +8,7 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 ![](https://64.media.tumblr.com/19d62cea0391315667fb022be333da1b/243b2ba31def5e4c-ec/s1280x1920/22297c15cd9930e04581df18deccdecd2945eced.pnj)
 ![](https://64.media.tumblr.com/67f2556f6dca739db25b4b6cec09e732/4c49cf69d9efb6d6-17/s1280x1920/8e5a5e57f34d8a6c5c9a1deec377b5c79ac46577.pnj)
 
-- ***🟢 = Likely online!***
+- ***🟢 = Likely online***
 - ***🌙 = Offtab, Semi-afk, or tired... whispering is recommended***
 - ***⛔️ = AFK  or busy, please W2I***
 
@@ -21,7 +21,7 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
  - I am fine with jokingly flirting MOST of the times but I'd appreciate if you ask first
  - Better to ask first before jokingly insulting me
  - Feel free to take inspo, just try to use your own creativity, okay? It's more fun that way
- - I'd prefer if you ask first before screenshotting my skin specifically and posting it on an app like Pinterest
+ - I'd prefer if you ask first before screenshotting my skin specifically and posting it on an app like Pinterest? 🤔
 
 ![](https://64.media.tumblr.com/15d9760be1cab464321eac57e1bc9724/5b5768b53aad21c8-ba/s1280x1920/58b31dcab6cc512012455cc015e5f7b1388e2009.pnj)
 
@@ -31,17 +31,17 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
  
 　✦ We are open to making new friends most of the times. Just be nice! Social media made y'all way too comfortable with disrespecting people and not getting punched in the face for it
 
-　✦ [Peacefic](https://peacefic.carrd.co/) and indinclus
+　✦ [Peacefic](https://peacefic.carrd.co/) and indinclus. We don’t really care much what fictional ships you ship as long it respects the creator’s boundaries.
   
-　✦ English is not my first language. Please excuse any potential errors and kindly let me know.
+　✦ English is not our first language. Please excuse any potential errors and you’re free to kindly let us know.
  
-　✦ Interests: My own OCs duh, planes, tanks, guns, sabres, American Revolution, England, Kingdom of France, CountryHumans, Guts and Blackpowder, PHIGHTING!, and many more.
- 
+　✦ Interests: Our own OCs duh, planes, tanks, guns, sabres, American Revolution, England, Kingdom of France, CountryHumans, Guts and Blackpowder, PHIGHTING!, and many more.
+
 　✦ If you want to know more just ask
   
 **Please Do Not Follow If: the Basic DNI in [this](https://truly-basic-dni.carrd.co/), anti-alterhumanity, fakeclaimers, sysmedicalists/system exclusionists ...**
 
-I know DNI lists dont always work. I do not block people often but I am not afraid to do so.
+We do not block people often but we are not afraid to do so.
 
 ![](https://64.media.tumblr.com/19effd1317a9d7b1c21711618bf3d8e1/e270995439c29ff0-18/s250x400/de862ba0f9405f0f75c8c7ed081017543d1bb122.gifv) ![](https://64.media.tumblr.com/9f0a4032e4a41b76f0525c6faf3830a4/d52549e5be5f6519-c3/s250x400/f33c5a876ffa6c116fc14f90ad63228303a8b65e.gifv) ![](https://64.media.tumblr.com/44cd3c6fecd8a5ed5a44b09913380e91/16ec8eee5a6c4ebc-f9/s250x400/84e46b51a4d3ff5df7e84230feddcf6eb0043bc2.gif)
 
