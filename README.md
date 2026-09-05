@@ -1,5 +1,5 @@
 ### ❝ And if I'm meant to be alone, please take away my desire to be loved. ❞
-Date last modified: August 7, 2026.
+Date last modified: September 5, 2026.
 
 Dividers by [dollywons](https://www.tumblr.com/dollywons?source=share) and [rmstitanics](https://www.tumblr.com/rmstitanics?source=share) and on Tumblr
 
@@ -27,7 +27,7 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
 
 ### About Me 
 
-　✦ We are [plural](https://pluralpedia.org/w/Plurality).
+　✦ We are members of a [collective](https://pluralpedia.org/w/Plurality).
  
 　✦ We are open to making new friends most of the times. Just be nice! Social media made y'all way too comfortable with disrespecting people and not getting punched in the face for it
 
