@@ -1,5 +1,5 @@
 ### ❝ And if I'm meant to be alone, please take away my desire to be loved. ❞
-Date last modified: September 5, 2026.
+Date last modified: September 30, 2026.
 
 Dividers by [dollywons](https://www.tumblr.com/dollywons?source=share) and [rmstitanics](https://www.tumblr.com/rmstitanics?source=share) and on Tumblr
 
@@ -30,7 +30,7 @@ This is intended for PonyTown players. If you do not play PonyTown, you may disr
  
 　✦ We are open to making new friends most of the times. Just be nice! Social media made y'all way too comfortable with disrespecting people and not getting punched in the face for it
 
-　✦ [Peacefic](https://peacefic.carrd.co/) and indinclus. We don’t really care much what fictional ships you ship as long it respects the creator’s boundaries.
+　✦ [Peacefic](https://peacefic.carrd.co/), [ShimmerQueer](https://www.tumblr.com/inkztruecolorz/818550434392391680/shimmerqueer) and radqueer-neutral. We don’t really care much what fictional ships you ship as long it respects the creator’s boundaries.
   
 　✦ English is not our first language. Please excuse any potential errors and you’re free to kindly let us know.
  
